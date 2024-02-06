@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nikoranbes
+- 👋 Hi, I’m Deepak.
 - 👀 I’m interested in Everything i can learn or not.
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
